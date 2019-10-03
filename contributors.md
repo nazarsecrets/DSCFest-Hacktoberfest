@@ -1,3 +1,3 @@
-### Tsec Contribution 
-Akanksha Bhasin<br>
+Akanksha Bhasin
 Divyansh Chaurasia
+Shreeya Rokade</br>
